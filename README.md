@@ -11,9 +11,8 @@
 pelo email
 00001105819929sp@al.educacao.sp.gov.br
 
+![](https://media1.tenor.com/m/QGYcq-x7VP8AAAAd/ros%C3%A9-blackpink-rose.gif)
 
 
 
 
-
-![](https://media1.tenor.com/m/D6v9VEKmqtEAAAAd/fun-lalisa.gif)
