@@ -8,4 +8,4 @@ pelo email
 00001105819929sp@al.educacao.sp.gov.br
 
 
-!{}(https://media1.tenor.com/m/D6v9VEKmqtEAAAAd/fun-lalisa.gif)
+![](https://media1.tenor.com/m/D6v9VEKmqtEAAAAd/fun-lalisa.gif)
